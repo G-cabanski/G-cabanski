@@ -10,9 +10,10 @@
 
 
 
+programming is like a forest some peple want to study and pick it apart
+but me fuck that shit man im gonna chop down THAT FUCKING FOREST and build a house
+with the wood.
 
-//note most of my shit is not that serious because this is not my job
-this is my fun time
 <!---
 G-cabanski/G-cabanski is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
