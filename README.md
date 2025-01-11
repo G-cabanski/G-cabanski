@@ -12,6 +12,7 @@
 
 programming is like a forest some peple want to study and pick it apart
 but me fuck that shit man im gonna chop down THAT FUCKING FOREST and build a house
+
 with the wood.
 
 <!---
